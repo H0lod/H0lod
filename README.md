@@ -1,8 +1,7 @@
                                hi   .  feel free to int 
                             ( sorry sometimes i'm awkward :< )
                                  {   c + h is okay !   }
-
-![c49027cae280539f0818277c50fdc8a4](https://github.com/user-attachments/assets/6e2e3770-1440-4f87-b184-5655cf4fcae8)
+![0fb4c1898d5e9d3d6ec8ad8f890bf2ca](https://github.com/user-attachments/assets/a5e6438d-074e-456a-8afb-f84a1f24962d)
 
 <!--
 **H0lod/H0lod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
