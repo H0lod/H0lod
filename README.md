@@ -1,5 +1,6 @@
-                                   hi   .  feel free to int ( sorry sometimes i'm awkward :< )
-                                               {   c + h is okay !   }
+                               hi   .  feel free to int 
+                            ( sorry sometimes i'm awkward :< )
+                                 {   c + h is okay !   }
 
 ![c49027cae280539f0818277c50fdc8a4](https://github.com/user-attachments/assets/6e2e3770-1440-4f87-b184-5655cf4fcae8)
 
