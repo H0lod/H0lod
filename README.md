@@ -1,7 +1,8 @@
  hi   .  
 Super duper shy , int first if you want to :,3
  
-![7af116740c9331b9c24edfd0a8442fb7](https://github.com/user-attachments/assets/a38ff6cb-1c53-45b0-bc82-b26289387ff8)
+![0d8ffe27c604bead5f964a152e48de56](https://github.com/user-attachments/assets/4237203e-2bda-4637-80b0-d658a28b53f9)
+
 
 <!--
 **H0lod/H0lod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
