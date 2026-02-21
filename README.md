@@ -1,7 +1,8 @@
  hi   .  
 Super duper shy , int first if you want to :,3
  
-![090234b6e5e85ffc3e1f2c31d627ac82](https://github.com/user-attachments/assets/0a7ad286-59d2-4d47-8685-694602f9ffcd)
+![fdf30fc44c2d115e2a72c8000e7eb775](https://github.com/user-attachments/assets/593ca67d-f967-4b1a-a6ff-241d6807b8e8)
+
 
 
 
