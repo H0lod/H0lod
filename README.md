@@ -43,7 +43,6 @@ Stamps collection
 ![dog5](https://github.com/user-attachments/assets/584067aa-d13f-4953-bee1-77b53a3d17ec)
 ![d274kv5-831ffe99-3ef8-435f-9995-3506619a93b9](https://github.com/user-attachments/assets/61d37d3a-0f7a-4325-95a7-34537b084358)
 ![tumblr_9c8aeace659f2d41749d6c40bbe1c2e3_7cc639b3_100](https://github.com/user-attachments/assets/1097f338-5541-47fd-a850-0eff67055741)
-<img width="99" height="56" alt="tumblr_316a709efaede1f454b7ce8bdcd11357_528ab7ba_100" src="https://github.com/user-attachments/assets/f303a15f-5b11-460e-b0b0-6d2d773241fd" />
 
 
 
