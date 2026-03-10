@@ -1,6 +1,9 @@
- hi   .  
-Super duper shy , int first if you want to :,3
-![868d11d231cda7fc209aa5df8eb9b41d](https://github.com/user-attachments/assets/be0ca9bb-f88d-4700-9859-30a41b129a06)
+
+
+
+<img width="97" height="57" alt="tumblr_pqqgwd2pAn1y8ua8do1_100" src="https://github.com/user-attachments/assets/7c46f40b-8bd3-445d-ad94-1949f16aa9a2" /><img width="99" height="56" alt="tumblr_ecdc74b070129fca4d455ca51979705e_f1e99280_100" src="https://github.com/user-attachments/assets/fe607c22-ea82-4789-a155-f09f9e4d1c48" /> <img width="101" height="57" alt="tumblr_ptplhpZ3ea1y8ua8do4_250" src="https://github.com/user-attachments/assets/5bd92067-cc21-452c-a4f3-d4fc233a7029" /> 
+![tumblr_pqqh5fiOtl1y8ua8do9_100](https://github.com/user-attachments/assets/3056be2c-594f-4c50-b5a4-edb7f759a5d7) <img width="99" height="56" alt="tumblr_pyhwq7i9Tk1y8ua8do6_100" src="https://github.com/user-attachments/assets/a410bd85-8c36-4f21-b91f-9b1af08aa401" /> <img width="99" height="56" alt="tumblr_8ec2144e3f86342055aba068b7ac594c_a95a8288_100" src="https://github.com/user-attachments/assets/94a95533-3a92-44a0-a7f0-6f5770c51f5a" />
+
 
 
 
