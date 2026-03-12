@@ -46,7 +46,8 @@ Stamps collection
 <img width="99" height="56" alt="tumblr_8871aa0d3687fed5bc6004a9be4cca3f_00ae00b7_100" src="https://github.com/user-attachments/assets/9619de42-8b40-4229-b5be-4f1e4eaa31ca" /> <img width="99" height="56" alt="tumblr_inline_p0v212eE2V1u5rvwj_500" src="https://github.com/user-attachments/assets/0125fa36-8ad6-4ba2-92b1-3dddfd8c2928" /> <img width="99" height="56" alt="tumblr_pidamp8Rf61xk82cxo8_100" src="https://github.com/user-attachments/assets/07e1d9a5-0069-46a1-85af-81792d71e692" />
 <img width="99" height="55" alt="74" src="https://github.com/user-attachments/assets/2d903769-e9de-44b4-84a3-7df50c88d1a0" />
 <img width="99" height="55" alt="66" src="https://github.com/user-attachments/assets/d19f9663-b169-47ad-864e-8e4047e01a23" />
-<img width="99" height="57" alt="d862ixc-728f29fb-abf5-4bf8-aa5f-4c5fe1572058" src="https://github.com/user-attachments/assets/09ef11c3-d88a-447c-8217-75320b3a7fa7" />
+<img width="99" height="57" alt="d862ixc-728f29fb-abf5-4bf8-aa5f-4c5fe1572058" src="https://github.com/user-attachments/assets/09ef11c3-d88a-447c-8217-75320b3a7fa7" /> <img width="99" height="56" alt="Garfield-stamp" src="https://github.com/user-attachments/assets/aa517aae-d55d-44b2-9321-90e245c01666" />
+
 
 
 
