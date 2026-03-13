@@ -51,10 +51,6 @@ Stamps collection
 
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=Holdon&color=blue)
-
-
-
 
 
 
